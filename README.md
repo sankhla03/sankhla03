@@ -38,8 +38,8 @@
 </div>
 
 ### 🌐 Let's Connect:
-- 📫 Email: [piyushkumarroy59@gmail.com](mailto:piyushkumarroy59@gmail.com)
-- 🔗 LinkedIn: [https://www.linkedin.com/in/piyush-kumar-roy-405671278/](https://www.linkedin.com/in/piyush-kumar-roy-405671278/)
+- 📫 Email: adityasankhla03@gmail.com](mailto: adityasankhla03@gmail.com)
+- 🔗 LinkedIn: [https://www.linkedin.com/in/ashok-sankhla/](https://www.linkedin.com/in/ashok-sankhla/)
 
 ---
 
